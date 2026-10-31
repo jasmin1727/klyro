@@ -1,8 +1,2 @@
 # klyro
 ⌛Cooming Soon.....
-
-
-
-
-
-
